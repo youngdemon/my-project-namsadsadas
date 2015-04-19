@@ -1,0 +1,3 @@
+Hiện tại mình đang có project Supportive learning với điểm bảo vệ là 70 điểm. Mình sẽ share lại cho những bạn nào cần với chi phí hợp lý. Và chắc chắn bao bạn đâu nếu không đậu mình trả lại tiền. Mọi chi tiết xin liên hê 01665265800
+
+Ngoài project này ra thì mình còn rất rất nhiều project khác . Nên những bạn đang làm đồ án aptech cứ yên tâm mà pm mình. Mình sẽ giúp các bạn vượt qua kì đồ án căng thẳng này.
